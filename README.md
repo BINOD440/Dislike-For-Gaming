@@ -1,0 +1,2 @@
+# Dislike-For-Gaming
+Copyright
